@@ -1,0 +1,1 @@
+# Artificial-Intelligence-and-its-application-in-the-Internet-of-Things
